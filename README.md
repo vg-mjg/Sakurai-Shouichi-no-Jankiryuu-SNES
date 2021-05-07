@@ -1,3 +1,6 @@
+## Download 
+https://files.catbox.moe/0eh6bf.sfc
+
 ## Menu
 1. Theory
 2. Free games
